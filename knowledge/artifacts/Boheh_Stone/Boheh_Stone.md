@@ -24,3 +24,14 @@ the constellations of Crux and Centaurus, last visible from Ireland
 around 4,100 BC.
 
 ## Description
+
+The Boheh Stone is one of the finest examples of Neolithic rock art in
+Ireland, covered in many cup and ring marks and keyhole motifs; about
+250 petroglyphs in total. It is a natural outcrop flecked with quartz.
+
+### Rolling sun
+
+Twice a year (18 April and 24 August by the Gregorian calendar), from
+the vantage point at the Boheh Stone, the sun can be seen to set at the
+summit of Croagh Patrick (7.1 km / 4.4 mi to the WNW) and appears to
+roll down its northern shoulder.
